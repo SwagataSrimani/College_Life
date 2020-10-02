@@ -1,2 +1,3 @@
 # College_Life
-Most enjoyable stage of life
+College life is incomplete without exciting friends and outings.
+I am having a great college life.
